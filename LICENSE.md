@@ -1,4 +1,4 @@
-# 
+# rare bot de negociação BitMEX scripts é o melhor bot de negociação BitMEX scripts com negociação perpétua e grid trading. Seguro, confiável e otimizado para estratégias de
 
 
 
